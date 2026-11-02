@@ -1,6 +1,6 @@
 # Official Rulebook — Champion of Champions Tour CS2 2026
 
-Last update on: 02 May 2026
+Last update on: 02 May 2026 - Let´s see if this appears.
 
 ## 1. Definitions
 
